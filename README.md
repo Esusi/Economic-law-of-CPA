@@ -1,0 +1,1 @@
+# Economic-law-of-CPA
