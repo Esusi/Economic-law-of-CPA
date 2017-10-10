@@ -1,1 +1,1 @@
-# Economic-law-of-CPA
+![jjf1](../../jjf1.png)
